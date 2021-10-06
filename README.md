@@ -1,1 +1,1 @@
-# aoikinomi39.github.io
+# 1006
